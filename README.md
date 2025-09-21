@@ -27,7 +27,7 @@ Welcome to my GitHub profile! I'm a passionate developer who loves building inno
 
 - **GitHub:** [Dividebyzero-gt](https://github.com/Dividebyzero-gt)
 - **Email:** (igwilohnnaa@gmail.com)
-- **LinkedIn:**(https://www.linkedin.com/in/nnaa-igwiloh?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
+- **LinkedIn:**(https://www.linkedin.com/in/nnaa-igwiloh)
 
 ---
 
